@@ -1,1 +1,0 @@
-# aplikasi_cepuin_aja
